@@ -1,0 +1,1 @@
+This is my own personal project completed back home on my home desktop. if youre reading this it means that I still have not been able to go home yet and have this project uploaded since the cration of my github, this is just as place holder for it for now, until I can go back and have the game uploaded. My applogies.
